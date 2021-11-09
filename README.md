@@ -54,4 +54,4 @@
 
 
 ---
-<h5 align='center'>© 2021 Aνιѕнкαя Pαтιℓ</h5>
+<h5 align='center'>© 2021 Beats Trick</h5>
